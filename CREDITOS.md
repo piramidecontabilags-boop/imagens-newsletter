@@ -1,0 +1,2 @@
+- `foto-sede-da-nvidia-em-santa-clara-na-california.jpg` — Coolcaesar · CC BY-SA 4.0 · https://commons.wikimedia.org/wiki/File:NVIDIA_Headquarters.jpg (baixada em 2026-11-18)
+- `foto-painel-de-partidas-em-toronto-durante-a-parada-da-faa.jpg` — Dillan Payne · CC BY-SA 4.0 · https://commons.wikimedia.org/wiki/File:Departure_Board_for_Toronto_YYZ_during_FAA_Ground_Stop,_November_13_2026_(01).jpg (baixada em 2026-11-18)
